@@ -30,8 +30,6 @@ Where to Get Stuff
 
 [Tinsel Trading Company](http://www.tinseltrading.com/index.php?splashed=1) – vintage metal threads and fabric
 
-[Hedgehog Handworks](http://www.hedgehoghandworks.com/catalog/index.php) – metal wrapped embroidery threads
-
 ### Conductive Textiles, Companies/Wholesalers
 
 [Bekaert](http://www.bekaert.com/)
